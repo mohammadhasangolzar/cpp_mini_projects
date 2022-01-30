@@ -1,3 +1,3 @@
-These are my mini-projects
+These are my mini-projects.
 
 mohammadhasan golzar
